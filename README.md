@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @eddywark1
+- 😄 Pronouns: Bilinmiyor.
+- ⚡ Fun fact: Bilinmiyor.
